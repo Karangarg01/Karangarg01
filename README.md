@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **karan018522@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1tz17LhQKcDRXrNQ2L6KENHMWex06EgqK/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1-JlAN8JJxQGVeL135Ti7I7V4pdAFGl2T/view?usp=drive_link)
 
 
 
